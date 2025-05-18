@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DrunkenEddie
 - 👀 I’m interested in learnig everyday
 - 🌱 I’m currently working with a billing company
-- 💞️ I’m looking to collaborate on I D K
+- 💞️ I’m looking for a job Lol I broke AF
 - 📫 How to reach me can email me sushovan04
 - 😄 Pronouns: Su Sho Van
 - ⚡ Fun fact: night owl
